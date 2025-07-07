@@ -11,4 +11,4 @@
 
 想要观看日本AV免费影片？这些平台为你提供了一个全面且便捷的观影体验。影片按类型和演员分类，帮助用户快速浏览和筛选。每个影片都有详细的描述和高清播放选项，确保你能够获得最佳的观看体验。平台支持高清视频播放，并根据网络状况优化画质，保证不间断播放。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/hehe20250707/hehe12 ）</span>
